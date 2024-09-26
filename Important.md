@@ -1,0 +1,1 @@
+It is important to understand the work and why it is done in order to become a professional. Copying code does not help with becoming a professional, as most of the things have never been done before so one does not grow as a professional from copying code.
